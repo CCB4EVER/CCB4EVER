@@ -1,5 +1,15 @@
-## Hi there 👋
+<div align ="center">
+<img src="https://i.postimg.cc/FzkgSGKx/Untitled179-0000-31-48-Restored2-20261113215519.png">
 
+⠀<table>
+ <tr> 
+<td align="center">
+  ೨౿　　𝘄𝗮𝗿𝗱𝗲𝗻　ₒᵣ 
+　　𝗹𝗲𝗹𝗮𝗻𝗱　
+  ◞        /     𝗽𝗿𝗲 𝗺𝘂𝗿𝗸𝗼𝗳𝗳 𝗹𝗲𝗹𝗮𝗻𝗱 𝗰𝗼𝘆𝗹𝗲   
+& 𝘁𝗵𝗲 𝘄𝗮𝗿𝗱𝗲𝗻  𝗸𝗶𝗻  ⑅ (>𖥦 <マ
+  </td>
+</table>
 <!--
 **CCB4EVER/CCB4EVER** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
