@@ -5,11 +5,11 @@
 <div align ="center">
 <img src="https://i.postimg.cc/63q5Ymn2/Untitled179-0000-31-48-Restored2-20261113222441.png">
 
- $\color{#75716F}\text{೨౿　warden / leland (>𖥦 <マ}$
+ $\color{#75716F}\text{೨౿　𝘄𝗮𝗿𝗱𝗲𝗻 / 𝗹𝗲𝗹𝗮𝗻𝗱 (>𖥦 <マ}$
 
-$\color{#494D4D}\text{﹍“ why should I love when I can have fun}$
+$\color{#494D4D}\text{﹍“ 𝙬𝙝𝙮 𝙨𝙝𝙤𝙪𝙡𝙙 𝙄 𝙡𝙤𝙫𝙚 𝙬𝙝𝙚𝙣 𝙄 𝙘𝙖𝙣 𝙝𝙖𝙫𝙚 𝙛𝙪𝙣}$
 
-$\color{#343536}\text{with my breathing toy?”﹍}$
+$\color{#343536}\text{𝙬𝙞𝙩𝙝 𝙢𝙮 𝙗𝙧𝙚𝙖𝙩𝙝𝙞𝙣𝙜 𝙩𝙤𝙮? ”﹍}$
   
   </td>
 </table>
