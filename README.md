@@ -5,9 +5,11 @@
 <div align ="center">
 <img src="https://i.postimg.cc/63q5Ymn2/Untitled179-0000-31-48-Restored2-20261113222441.png">
 
- $\color{#656A69}\text{೨౿　warden / leland (>𖥦 <マ}$
- $\color{#505455}\text{﹍}$
- $\color{#323232}\text{﹍}$
+ $\color{#75716F}\text{೨౿　warden / leland (>𖥦 <マ}$
+
+$\color{#494D4D}\text{﹍“ why should I love when I can have fun}$
+
+$\color{#343536}\text{with my breathing toy?”﹍}$
   
   </td>
 </table>
