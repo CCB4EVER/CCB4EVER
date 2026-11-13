@@ -1,10 +1,12 @@
-<div align ="center">
-<img src="https://i.postimg.cc/FzkgSGKx/Untitled179-0000-31-48-Restored2-20261113215519.png">
 
 ⠀<table>
  <tr> 
 <td align="center">
-  ೨౿　　𝘄𝗮𝗿𝗱𝗲𝗻　ₒᵣ 　𝗹𝗲𝗹𝗮𝗻𝗱 　 (>𖥦 <マ
+<div align ="center">
+<img src="https://i.postimg.cc/63q5Ymn2/Untitled179-0000-31-48-Restored2-20261113222441.png">
+
+ $\color{#9E9689}\text{೨౿　　𝘄𝗮𝗿𝗱𝗲𝗻　ₒᵣ 　𝗹𝗲𝗹𝗮𝗻𝗱 　 (>𖥦 <マ}$
+  
   </td>
 </table>
 <!--
